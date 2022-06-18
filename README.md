@@ -1,3 +1,3 @@
 This is Dreamer13sq.
-I like to make things.
+If I like something, I'll make it myself.
 
